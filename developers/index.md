@@ -1,15 +1,1 @@
----
-title: For Developers
-description: A collection of resources for developers.
-
-next: false
----
-
-# For Developers {#developers}
-
-This section of the wiki has information that is useful for developers wanting to interact with Create in any way.
-
-Please refer to the sidebar for a list of the pages available.
-
-If you need further assistance, feel free to ask for help in the [Create Discord](https://r.createmod.net/d) in the
-`#devchat` channel.
+Prank your Dad Character changes here is how it works Max allegra swapped libby allegra Leon allegra swapped with ms allegra Gary trey swapped bella cathy Charlie braiden Swapped with Ellie josephine Jennifer Swapped with Derek Flo William swapped with Vanessa April allegra swapped with Chandrelle Boshy ob Swapped with Bosha ob Buba ob swapped with Bob ob Boxa floxa Replaces Cult racoon Leader Chloe swapped with spray paint Lady what it means: Max is now libby and he has to prank his dad Leon allegra Libby is max she is the quiet and shy girl Ms allegra is kind Hearted mother Before her death Leon allegra Is the abusive Dad and Got divorced with ms allegra Gary trey Is the cheerful cat and is Max and libby childhood friend Bella is The employee frlm cabistoo also gary thinks he is a cat even though he's not Charlie is old classmate of Libby And hates jennifer and is the one works with her And hates ellie josephine Because she is incredibly rude rude and he despise her William is old classmate bully of max And Charlie And william is young rich guy Vanessa is The old girl Who owns Company And cabistoo and is threatening Bella into firing her for making max work in cabistoo Derek flo is the worker in L&P Shop And is friend of Libby and max Boshy is brother of bosha ob And hates humans He is rude Bosha ob is the host of gameshow and has rude brother Boshy ob Buba ob is the kne revealed in Pickled pickle store By using rocket luncher on the broke wall and Be worhy by beating bob ob and Boshy ob with racoon mask Bob ob Is the builder of the city And Is part of gameshow of bosha ob boxa floxa Is the leader of Gym Chloe Is the bunny girl Who,wants spray paint Spray paint girl Is the one who works in sewers (you need Crowbar to open the sewers) 
